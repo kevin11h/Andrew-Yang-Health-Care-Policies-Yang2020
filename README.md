@@ -19,3 +19,9 @@ https://www.yang2020.com/policies/care-for-people-with-disabilities/
 https://www.yang2020.com/policies/expanding-medical-licensure/
 
 https://www.yang2020.com/policies/autism-intervention-funding/
+
+
+https://www.yang2020.com/policies/voting-for-people-with-disabilities-pwd/
+
+
+https://www.yang2020.com/policies/preventative-care-and-food-security/
